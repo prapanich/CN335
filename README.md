@@ -4,6 +4,7 @@
 Update1: https://youtu.be/fo7d9tlejoc <br>
 Update2: https://youtu.be/0n2wKiVnVl8 <br>
 Update3: https://youtu.be/97lM88mAyug <br>
-Final:  https://youtu.be/hoXwuTy8F8Q
+Final:  https://youtu.be/hoXwuTy8F8Q <br>
+อธิบายการทำ: https://youtu.be/iZQhFHQ7D_w <br>
 
 คลิปสอนทำพระอาทิตย์ https://www.youtube.com/channel/UCRt84OLnxAjHNiAQ-94xxGw
